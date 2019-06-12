@@ -12,6 +12,8 @@ everyone ok?#
 
 theres a long wayto go
 
+here we go!
+
 really guys come on
 
 everyone is amazing
